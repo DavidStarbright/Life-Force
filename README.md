@@ -19,7 +19,7 @@ Learn how to harness the life force for personal growth and happiness.
 Transform your life into a rewarding adventure.
 Where to Buy
 Amazon
-Barnes & Noble
+Barnes & Noble,
 Storytel and more
 
 Connect with David Starbright
