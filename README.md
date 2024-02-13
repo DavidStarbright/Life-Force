@@ -2,7 +2,6 @@
 
 ![LIFE FORCE Book Cover](/71eCBnORWnL._SY522_.jpg)
 
-
 LIFE FORCE: Living to Your Maximum Potential and Achieving True Happiness
 Introduction
 "LIFE FORCE" by David Starbright guides readers on a journey to unlock their full potential and achieve enduring happiness. This book is not just a reading experience; it's an invitation to transform your life into the adventure you've always dreamed of. Through practical tools and techniques, Starbright shows how to harness the invisible energy that courses through all of existence, shaping our lives and connecting us to the cosmos.
@@ -21,10 +20,10 @@ Transform your life into a rewarding adventure.
 Where to Buy
 Amazon
 Barnes & Noble
-Official Website
+Storytel and more
 
 Connect with David Starbright
 Twitter
 Facebook
-Official Website
+Instagram
 Transform your life with "LIFE FORCE" and embark on a journey to achieve true happiness and unleash your full potential.
